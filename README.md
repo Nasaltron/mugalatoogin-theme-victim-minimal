@@ -1,0 +1,1 @@
+# mugalatoogin-theme-victim-minimal
